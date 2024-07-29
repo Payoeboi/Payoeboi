@@ -1,13 +1,13 @@
 -
 
-[![King Payoeboi](https://readme-typing-svg.demolab.com?font=Anton&size=30&pause=998&color=008000&background=F7F2F20A&vCenter=true&random=false&width=480&lines=Hello+Everyone%F0%9F%91%8B!;My+Name+is+Malvin+King;I+am+a+Self+Learned+Full-Stack+Developer;I+am+from+Zimbabwe;Nice+to+Meet+You)](https://github.com/kingmalvn)
+[![King Payoeboi](https://readme-typing-svg.demolab.com?font=Anton&size=30&pause=998&color=008000&background=F7F2F20A&vCenter=true&random=false&width=480&lines=Hello+Everyone%F0%9F%91%8B!;My+Name+is+Payoeboi+Zw;I+am+a+Self+Learned+Full-Stack+Developer;I+am+from+Zimbabwe;Nice+to+Meet+You)](https://github.com/Payoeboi)
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   
 
 
 
-![My card name](https://cardivo.vercel.app/api?name=PAYOEBOI%20KING%20&description=Hi,%20Welcome%20To%20My%20Profile&image=https://github.com/Payoeboi.png?lenght=50width=50=400&u=5313a9a2f6999325a10ce9bfa9787b536c90894c&v=4?q=tbn:ANd9GcR7aMC3bf4bg4l_nhYS2Un9FXbFYcB4T83Shjk8xSUZDh_D61LFpzbpeqLW&s=10?v=4&backgroundColor=brown&instagram=malvinking20&github.com/Payoeboi&)
+![My card name](https://cardivo.vercel.app/api?name=PAYOEBOI%20ZW🇿🇼%20&description=Hi,%20Welcome%20To%20My%20Profile&image=https://github.com/Payoeboi.png?lenght=50width=50=400&u=5313a9a2f6999325a10ce9bfa9787b536c90894c&v=4?q=tbn:ANd9GcR7aMC3bf4bg4l_nhYS2Un9FXbFYcB4T83Shjk8xSUZDh_D61LFpzbpeqLW&s=10?v=4&backgroundColor=brown&instagram=malvinking20&github.com/Payoeboi&)
 </p>
 <p> <b>Connect With me:</b></p>
 <p>
